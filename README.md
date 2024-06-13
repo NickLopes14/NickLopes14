@@ -9,22 +9,9 @@ Estou me desenvolvendo na linguagem JavaScript
 Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 
 
 ### Para entrar em contato comigo 📫
-
 nicolinhaslopes@gmail.com
 @nick.lopes14
 
-https://media1.tenor.com/m/CzaHhPyIR8gAAAAC/rosy00.gif
+![](https://media1.tenor.com/m/CzaHhPyIR8gAAAAC/rosy00.gif)
 
-
-
-
-
-
-
-
-
-
-
-
-https://media1.tenor.com/m/axbBp8jXCVcAAAAC/disney-princesses-great-idea.gif
 
